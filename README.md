@@ -9,6 +9,14 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 𝑚y interests : <a href='https://postimg.cc/D8F140tC' target='_blank'><img src='https://i.postimg.cc/D8F140tC/F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7.png' border='0' alt='F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7'></a>
 
-ㅤㅤㅤㅤmarvel, resident evil, identity v ( id 19290759 )
+ㅤㅤㅤㅤㅤㅤmarvel, resident evil, identity v ( id 19290759 )
 
-ㅤㅤㅤㅤmickey 17, heated rivalry, the pitt
+ㅤㅤㅤㅤmickey 17, heated rivalry, the pitt, dispatch
+
+ㅤㅤㅤㅤpeacemaker, weak hero, brave citizen
+
+ㅤㅤㅤㅤhsr ( uid 720594539 ), zzz ( uid 1504596039 )
+
+ㅤㅤㅤㅤdevil may cry, silent hill, cookie run, the boys
+
+ㅤㅤㅤㅤgen v, the hundred line, alien stage, 19 days.
