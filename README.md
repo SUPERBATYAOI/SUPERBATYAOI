@@ -7,20 +7,19 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**8teen**! ㅤ bruce  ㅤ ♡  ㅤ leon irl. 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://pix.crd.co/assets/images/gallery21/dd907d80.gif?v=1466ccea)ㅤㅤ 𝑚y interests : <a href='https://postimg.cc/D8F140tC' target='_blank'><img src='https://i.postimg.cc/D8F140tC/F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7.png' border='0' alt='F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7'></a>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˚◞ ㅤㅤ ⃗ ㅤㅤ꒰ㅤ 𝑚y interestsㅤ : <a href='https://postimg.cc/D8F140tC' target='_blank'><img src='https://i.postimg.cc/D8F140tC/F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7.png' border='0' alt='F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7'></a>
 
-ㅤㅤㅤㅤㅤㅤmarvel, resident evil, identity v ( id 19290759 )
+ㅤㅤㅤㅤㅤㅤㅤㅤmarvel, resident evil, identity v ( id 19290759 )
 
-ㅤㅤㅤㅤㅤㅤmickey 17, heated rivalry, the pitt, dispatch
+ㅤㅤㅤㅤㅤㅤㅤmickey 17, heated rivalry, the pitt, dispatch
 
-ㅤㅤㅤㅤㅤㅤpeacemaker, weak hero, brave citizen
+ㅤㅤㅤㅤㅤㅤㅤpeacemaker, weak hero, brave citizen, devil may cry
 
-ㅤㅤㅤㅤㅤㅤhsr ( uid 720594539 ), zzz ( uid 1504596039 )
+ㅤㅤㅤㅤㅤㅤㅤhsr ( uid 720594539 ), zzz ( uid 1504596039 )
 
-ㅤㅤㅤㅤㅤㅤdevil may cry, silent hill, cookie run, the boys
+ㅤㅤㅤㅤㅤㅤㅤsilent hill, cookie run, the boys, gen v
 
-ㅤㅤㅤㅤㅤㅤgen v, the hundred line, alien stage, 19 days.
+ㅤㅤㅤㅤㅤㅤㅤthe hundred line, alien stage, 19 days.
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
-ㅤㅤㅤㅤㅤㅤㅤ![](https://64.media.tumblr.com/14755bb797360a7e9eb50be8f25f3968/ed635b0ff4150dbd-8c/s250x400/cc441a473ce1f64087279a81126b06778d6dd8ee.pnj)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://64.media.tumblr.com/44496c146a9c592ef5f0d2c90f7d15e5/3ea6819b24935d35-72/s100x200/754575c13a0ad2fad6697c2f1c627400c5060f05.gifv) ![](https://64.media.tumblr.com/1a958d4b5920ddb21322b432dd169afa/97b18411d5b0209e-55/s100x200/0ea065c8b452ea4b38829c1a8426832823b41bdf.gifv) ![](https://64.media.tumblr.com/70a2be5e35e2328eb2baaa734f04a39e/3ea6819b24935d35-e6/s100x200/ec3f6a389fafd8046252bededfb6b2805a815348.gifv)
