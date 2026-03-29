@@ -3,12 +3,12 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://dividers.crd.co/assets/images/gallery04/1196d7bc.png?v=05d33f91)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href='https://postimg.cc/QF8gwCmX' target='_blank'><img src='https://i.postimg.cc/QF8gwCmX/A93848C1-C3E0-4679-933D-00591F4AFB7A.png' border='0' alt='A93848C1-C3E0-4679-933D-00591F4AFB7A'></a> ꒱ ㅤ﹫ 𝑟enchㅤor ㅤ𝑟enyaㅤ![](https://pix.crd.co/assets/images/gallery21/12bf090b.png?v=1466ccea)ㅤ she/her
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href='https://postimg.cc/jnqFpryq' target='_blank'><img src='https://i.postimg.cc/jnqFpryq/188BD64D-CB9B-4FA5-B5C3-D914E234E7F4.png' border='0' alt='188BD64D-CB9B-4FA5-B5C3-D914E234E7F4'></a> ꒱ ㅤ﹫ 𝑟enchㅤor ㅤ𝑟enyaㅤ![](https://pix.crd.co/assets/images/gallery21/12bf090b.png?v=1466ccea)ㅤ she/her
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**18 y.o.**! ㅤ bruce  ㅤ ♡  ㅤ leon irl. 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˚◞ ㅤㅤ ⃗ ㅤㅤ꒰ㅤ 𝑚y interestsㅤ:ㅤ  <a href='https://postimg.cc/D8F140tC' target='_blank'><img src='https://i.postimg.cc/D8F140tC/F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7.png' border='0' alt='F8E0B1FD-0AB6-4C91-807B-09CDCF03F8B7'></a>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˚◞ ㅤㅤ ⃗ ㅤㅤ꒰ㅤ 𝑚y interestsㅤ:ㅤ  <a href='https://postimg.cc/4KdnxKZY' target='_blank'><img src='https://i.postimg.cc/4KdnxKZY/A0D680F0-B7A8-47DC-93D8-DFA98E526A74.png' border='0' alt='A0D680F0-B7A8-47DC-93D8-DFA98E526A74'></a>
 
  
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmarvel, resident evil, identity v, mickey 17,
