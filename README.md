@@ -8,20 +8,7 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ**18 y.o.**! ㅤ bruce  ㅤ ♡  ㅤ leon irl. 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ˚◞ ㅤㅤ ⃗ ㅤㅤ꒰ㅤ 𝑚y interestsㅤ:ㅤ  <a href='https://postimg.cc/4KdnxKZY' target='_blank'><img src='https://i.postimg.cc/4KdnxKZY/A0D680F0-B7A8-47DC-93D8-DFA98E526A74.png' border='0' alt='A0D680F0-B7A8-47DC-93D8-DFA98E526A74'></a>
 
- 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmarvel, resident evil, identity v, mickey 17,
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤheated rivalry, the pitt, alien stage,
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤdispatch, peacemaker, weak hero, brave citizen, 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤhsr, zzz, hi3rd, devil may cry, 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤsilent hill, cookie run, the boys, gen v, 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤthe hundred line, 19 days
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤ![](https://64.media.tumblr.com/ca3bfce245df733f7f3ad1a75aa3d254/f1edb2659908d932-cb/s250x400/9f98b5ba857577bb1ed04de9998940998e0b9651.webp)ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=weskennedy-yaoi&color=lightgrey&label=MEOW&style=for-the-badge)
