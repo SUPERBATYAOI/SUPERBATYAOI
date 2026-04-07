@@ -6,6 +6,6 @@
 
 ![](https://i.postimg.cc/634SQYmF/67.png) 
 
-
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmyㅤ [info](t.me/SJ1NF0) ㅤ&ㅤ[pronouns.cc](https://pronouns.cc/@ueeuueu)
 
 
