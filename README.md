@@ -4,7 +4,7 @@
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⊹ ࣪ ˖ㅤㅤ![](https://komarev.com/ghpvc/?username=weskennedy-yaoi&color=lightgrey&label=MEOW&style=for-the-badge)
 
 
-![](https://i.postimg.cc/7h6zmgk1/l3.png) 
+![](https://i.postimg.cc/bJMk2JGp/l3.png) 
 
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [info](https://t.me/SJ1NF0) ㅤ&ㅤ[pronouns.cc](https://pronouns.cc/@ueeuueu)
 
