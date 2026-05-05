@@ -6,6 +6,6 @@
 
 ![](https://i.yapx.ru/dZSK7.png)
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ﹙ㅤ[info](https://t.me/SJ1NF0)ㅤ﹢ㅤ[pronouns.cc](https://pronouns.cc/@ueeuueu)ㅤ﹚
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ﹙ㅤ[info](https://t.me/SJ1NF0)ㅤㅤ [pronouns.cc](https://pronouns.cc/@ueeuueu)ㅤ﹚
 
 
